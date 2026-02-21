@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **dakshmonani29@gmail.com**
 
-- Resume [https://drive.google.com/file/d/19ONEnk97LscvzAhRPOvZy1_abaYBM0k7/view?usp=sharing](https://drive.google.com/file/d/19ONEnk97LscvzAhRPOvZy1_abaYBM0k7/view?usp=sharing)
+- Resume [[https://drive.google.com/file/d/19ONEnk97LscvzAhRPOvZy1_abaYBM0k7/view?usp=sharing](https://drive.google.com/file/d/1kyL9xfu82aoQVySjj1lGEJtWCcAAGuxL/view?usp=sharing)](https://drive.google.com/file/d/19ONEnk97LscvzAhRPOvZy1_abaYBM0k7/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
